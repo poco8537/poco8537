@@ -1,1 +1,1 @@
-꾸미기 귀찮습니다 ㅎㅎ
++ Bubble Store : https://discord.gg/rhR42S9wXc
